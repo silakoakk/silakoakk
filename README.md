@@ -2,7 +2,7 @@
 - 👀 I’m interested in space 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on 
-- 📫 You can reach me via @gmail (is730139@gmail.com)
+- 📫 You can reach me via (is730139@gmail.com)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
