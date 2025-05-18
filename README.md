@@ -1,3 +1,5 @@
+I'm a junior developer passionate about Python, data science and web development.  
+Currently working on building real-world projects and improving my GitHub portfolio.
 - 👋 Hi, I’m @silakoakk
 - 👀 I’m interested in space 
 - 🌱 I’m currently learning 
